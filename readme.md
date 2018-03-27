@@ -1,0 +1,1 @@
+Tasks from Ukrainian school Olympiad in programming 2018
